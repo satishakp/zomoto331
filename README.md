@@ -1,5 +1,5 @@
-idle vade
-tomato bath
-rave dosa
-coffee
-mysore pak
+poori dosa
+vangi bath
+rave vade
+tea
+milky pak
